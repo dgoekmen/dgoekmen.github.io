@@ -1,8 +1,8 @@
 ### Doruk who?
 
 I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 I have graduated from university in Ankara with a degree in physics. A number of things happened in the period between, which I regard as my childhood, e.g.
-I have met my first two friends
 
+I have met my first two friends
 learnt how to draw and paint
 
 learnt Turkish
