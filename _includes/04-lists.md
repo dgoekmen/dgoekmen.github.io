@@ -1,13 +1,13 @@
 ## Favourite things
 in no particular order
 
+* [Seljalandsfoss](https://adventures.is/iceland/attractions/seljalandsfoss/)
+
 * [Peinture](https://www.christies.com/lotfinder/Lot/joan-miro-1893-1983-peinture-6108745-details.aspx)
 
 * [Fabric of Reality](https://www.amazon.com/Fabric-Reality-Parallel-Universes-Implications/dp/014027541X)
 
 * [Museum at Antibes](https://www.tripadvisor.com/Attraction_Review-g187217-d195037-Reviews-Musee_Picasso-Antibes_French_Riviera_Cote_d_Azur_Provence_Alpes_Cote_d_Azur.html)
-
-* [Seljalandsfoss](https://adventures.is/iceland/attractions/seljalandsfoss/)
 
 * [Maze comeback](https://www.youtube.com/watch?v=vgwXOWR2SAM)
 
