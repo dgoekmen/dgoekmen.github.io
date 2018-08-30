@@ -1,4 +1,4 @@
-I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 I have graduated from university with a degree in physics. A number of things happened in the period between, which I regard as my childhood, e.g.
+I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 I have graduated from university in Ankara with a degree in physics. A number of things happened in the period between, which I regard as my childhood, e.g.
 
 * I have learnt how to draw and paint
 
@@ -16,8 +16,10 @@ I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 
 
 * learnt how to play the piano
 
-* taken supervision from Ataç İmamoğlu and Cemal Yalabık
+* taken supervision from A. İmamoğlu, J. P. Home and M. C. Yalabık
 
 * learnt German
 
-* reduced my lack of sophistication on the message of quantum mechanics.
+* reduced my lack of sophistication on the message of quantum mechanics,
+
+* and made a few friends.
