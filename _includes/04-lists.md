@@ -18,3 +18,5 @@
 * [Suzuka 2005](https://www.youtube.com/watch?v=hwcSaayPy7w)
 
 * [Kara Toprak](https://www.youtube.com/watch?v=MFSm5_4afro/)
+
+* [Boltzmann's vision](https://plato.stanford.edu/entries/statphys-Boltzmann/)
