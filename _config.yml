@@ -1,5 +1,3 @@
 title: Hello
-description: <a href="https://www.deviantart.com/defeg" target="_blank">Art</a>
-
-<a href="https://dgoekmen.github.io/Statistical-Mechanics/" target="_blank">Satistical mechanics notebooks</a>
+description: <a href="https://www.deviantart.com/defeg" target="_blank">Art</a> <br />  <a href="https://dgoekmen.github.io/Statistical-Mechanics/" target="_blank">Satistical mechanics notebooks</a>
 theme: jekyll-theme-minimal
