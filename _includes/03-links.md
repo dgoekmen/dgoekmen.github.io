@@ -1,3 +1,3 @@
-[art](https://www.deviantart.com/defeg)
+[Art](https://www.deviantart.com/defeg)
 
-[statistical mechanics](https://dgoekmen.github.io/Statistical-Mechanics/)
+[Statistical mechanics notebooks](https://dgoekmen.github.io/Statistical-Mechanics/)
