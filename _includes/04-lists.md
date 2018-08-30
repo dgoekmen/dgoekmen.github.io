@@ -1,9 +1,9 @@
 ## Favourite things
 *in no particular order*
 
-- [Seljalandsfoss](https://adventures.is/iceland/attractions/seljalandsfoss/)
+-[Seljalandsfoss](https://adventures.is/iceland/attractions/seljalandsfoss/)
 
-- [Peinture](https://www.christies.com/lotfinder/Lot/joan-miro-1893-1983-peinture-6108745-details.aspx)
+-[Peinture](https://www.christies.com/lotfinder/Lot/joan-miro-1893-1983-peinture-6108745-details.aspx)
 
 - [Fabric of Reality](https://www.amazon.com/Fabric-Reality-Parallel-Universes-Implications/dp/014027541X)
 
