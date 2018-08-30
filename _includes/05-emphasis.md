@@ -13,4 +13,4 @@ I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 
 * received supervision from A. İmamoğlu, J. P. Home and M. C. Yalabık
 * learnt German
 * reduced my lack of sophistication on the message of quantum mechanics,
-* and made a few more friends.
+* and made a few more friends along the way.
