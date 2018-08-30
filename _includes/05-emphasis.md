@@ -12,7 +12,7 @@ I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 
 
 * learnt calculus
 
-* earned a table tennis medal with the high school team
+* earned a table tennis medal with our high school team
 
 * decided to stop wasting my time not inspecting Nature more mindfully,
 
