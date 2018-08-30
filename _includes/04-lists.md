@@ -1,5 +1,5 @@
 ## Favourite things
-in no particular order
+*in no particular order*
 
 * [Seljalandsfoss](https://adventures.is/iceland/attractions/seljalandsfoss/)
 
