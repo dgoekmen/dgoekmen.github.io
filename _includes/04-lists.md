@@ -7,7 +7,7 @@
 
 * [Fabric of Reality](https://www.amazon.com/Fabric-Reality-Parallel-Universes-Implications/dp/014027541X)
 
-* [Museum at Antibes](https://www.tripadvisor.com/Attraction_Review-g187217-d195037-Reviews-Musee_Picasso-Antibes_French_Riviera_Cote_d_Azur_Provence_Alpes_Cote_d_Azur.html)
+* [Museum in Antibes](https://www.tripadvisor.com/Attraction_Review-g187217-d195037-Reviews-Musee_Picasso-Antibes_French_Riviera_Cote_d_Azur_Provence_Alpes_Cote_d_Azur.html)
 
 * [Maze comeback](https://www.youtube.com/watch?v=vgwXOWR2SAM)
 
