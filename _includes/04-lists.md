@@ -10,4 +10,4 @@
 * [Franz Schubert Impromptu No. 4 Op. 90, D. 899](https://www.youtube.com/watch?v=fzCbLCVX0gA&t=1300s)
 * [Suzuka 2005](https://www.youtube.com/watch?v=hwcSaayPy7w)
 * [Kara Toprak](https://www.youtube.com/watch?v=MFSm5_4afro/)
-* [Boltzmann's vision](https://plato.stanford.edu/entries/statphys-Boltzmann/)
+* [Statistical mechanics](https://plato.stanford.edu/entries/statphys-Boltzmann/)
