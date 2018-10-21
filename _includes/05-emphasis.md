@@ -6,9 +6,7 @@ I was born in Fall 1995 at a university hospital in Ankara. Later, in Fall 2017 
 * learnt Turkish
 * visited some countries
 * learnt English
-* learnt calculus
 * earned a table tennis medal with our high school team
-* decided to stop wasting my time not inspecting Nature more mindfully,
 * learnt how to play the piano
 * received supervision from A. İmamoğlu, J. P. Home and M. C. Yalabık
 * learnt German
